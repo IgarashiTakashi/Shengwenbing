@@ -114,6 +114,16 @@
 
 5.能量衰竭
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/35%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%88%A4%E6%96%AD%E5%A4%B4%E9%83%A81.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/35%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%88%A4%E6%96%AD%E5%A4%B4%E9%83%A82.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/35%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%88%A4%E6%96%AD%E5%A4%B4%E9%83%A83.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/35%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%88%A4%E6%96%AD%E5%A4%B4%E9%83%A84.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/35%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%88%A4%E6%96%AD%E5%A4%B4%E9%83%A85.png)
+
 
 
 ##### 45下跌旗形进场方法以及止损
