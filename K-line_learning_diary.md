@@ -82,6 +82,40 @@
 
 解决这三个问题的核心思想是**中庸之道**
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/34%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%AE%9E%E6%88%98%E6%8A%80%E5%B7%A71.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/34%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%AE%9E%E6%88%98%E6%8A%80%E5%B7%A72.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/34%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%AE%9E%E6%88%98%E6%8A%80%E5%B7%A73.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/34%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%AE%9E%E6%88%98%E6%8A%80%E5%B7%A74.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/34%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%AE%9E%E6%88%98%E6%8A%80%E5%B7%A75.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/34%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%AE%9E%E6%88%98%E6%8A%80%E5%B7%A76.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/34%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%AE%9E%E6%88%98%E6%8A%80%E5%B7%A77.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/34%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%AE%9E%E6%88%98%E6%8A%80%E5%B7%A78.png)
+
+
+
+##### 35盛文兵：外汇黄金课堂之趋势线判断头部
+
+趋势线出现反转的五个条件：
+
+1.突破趋势线、突破内切趋势线、成交密集区域
+
+2.价格出现五浪的上升
+
+3.反抽趋势线形成反压
+
+4.指标出现背离
+
+5.能量衰竭
+
+
+
 ##### 45下跌旗形进场方法以及止损
 
 旗杆，旗面。
