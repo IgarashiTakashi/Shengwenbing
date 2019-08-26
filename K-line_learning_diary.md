@@ -34,9 +34,9 @@
 
 ##### 31外汇黄金高级课堂之趋势线的周期转换
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/31%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E9%AB%98%E7%BA%A7%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E7%9A%84%E5%91%A8%E6%9C%9F%E8%BD%AC%E6%8D%A21.png)
 
-
-
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/31%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E9%AB%98%E7%BA%A7%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E7%9A%84%E5%91%A8%E6%9C%9F%E8%BD%AC%E6%8D%A22.png)
 
 ##### 32上升趋势线 上升压力线 内切趋势线
 
@@ -64,7 +64,11 @@
 
 共振前提必须有大幅下跌或者上涨
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/33%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%85%B1%E6%8C%AF%E7%82%B9%20%E4%BA%A4%E6%98%93%E6%96%B9%E6%B3%95%E5%8E%9F%E7%90%861.png)
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/33%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%85%B1%E6%8C%AF%E7%82%B9%20%E4%BA%A4%E6%98%93%E6%96%B9%E6%B3%95%E5%8E%9F%E7%90%862.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/33%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%85%B1%E6%8C%AF%E7%82%B9%20%E4%BA%A4%E6%98%93%E6%96%B9%E6%B3%95%E5%8E%9F%E7%90%863.png)
 
 ##### 34盛文兵：外汇黄金课堂之趋势线实战技巧
 
