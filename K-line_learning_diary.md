@@ -170,11 +170,45 @@
 
 ##### 40盛文兵：外汇黄金课堂之趋势线开仓平仓判断反转综合应用
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/40%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%BC%80%E4%BB%93%E5%B9%B3%E4%BB%93%E5%88%A4%E6%96%AD%E5%8F%8D%E8%BD%AC%E7%BB%BC%E5%90%88%E5%BA%94%E7%94%A81.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/40%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%BC%80%E4%BB%93%E5%B9%B3%E4%BB%93%E5%88%A4%E6%96%AD%E5%8F%8D%E8%BD%AC%E7%BB%BC%E5%90%88%E5%BA%94%E7%94%A82.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/40%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%BC%80%E4%BB%93%E5%B9%B3%E4%BB%93%E5%88%A4%E6%96%AD%E5%8F%8D%E8%BD%AC%E7%BB%BC%E5%90%88%E5%BA%94%E7%94%A83.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/40%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%BC%80%E4%BB%93%E5%B9%B3%E4%BB%93%E5%88%A4%E6%96%AD%E5%8F%8D%E8%BD%AC%E7%BB%BC%E5%90%88%E5%BA%94%E7%94%A84.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/40%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%BC%80%E4%BB%93%E5%B9%B3%E4%BB%93%E5%88%A4%E6%96%AD%E5%8F%8D%E8%BD%AC%E7%BB%BC%E5%90%88%E5%BA%94%E7%94%A85.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/40%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%BC%80%E4%BB%93%E5%B9%B3%E4%BB%93%E5%88%A4%E6%96%AD%E5%8F%8D%E8%BD%AC%E7%BB%BC%E5%90%88%E5%BA%94%E7%94%A86.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/40%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%BC%80%E4%BB%93%E5%B9%B3%E4%BB%93%E5%88%A4%E6%96%AD%E5%8F%8D%E8%BD%AC%E7%BB%BC%E5%90%88%E5%BA%94%E7%94%A87.png)
+
 
 
 
 
 ##### 41头肩底
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/41%E5%A4%B4%E8%82%A9%E5%BA%951.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/41%E5%A4%B4%E8%82%A9%E5%BA%952.png)
+
+
+
+##### 42突破向下的方法
+
+
+
+
+
+##### 43下跌内切阻力线
+
+
+
+
+
+##### 44下跌内切阻力线实战秘决
 
 
 
