@@ -256,21 +256,27 @@
 
 ##### 51盛文兵：外汇黄金课堂之趋势线进场点实战技巧
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/51%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E8%BF%9B%E5%9C%BA%E7%82%B9%E5%AE%9E%E6%88%98%E6%8A%80%E5%B7%A71.png)
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/51%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E8%BF%9B%E5%9C%BA%E7%82%B9%E5%AE%9E%E6%88%98%E6%8A%80%E5%B7%A72.png)
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/51%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E8%BF%9B%E5%9C%BA%E7%82%B9%E5%AE%9E%E6%88%98%E6%8A%80%E5%B7%A73.png)
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/51%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E8%BF%9B%E5%9C%BA%E7%82%B9%E5%AE%9E%E6%88%98%E6%8A%80%E5%B7%A74.png)
 
 ##### 52盛文兵：外汇黄金课堂之趋势线中线交易方法以及交易技巧
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/52%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E4%B8%AD%E7%BA%BF%E4%BA%A4%E6%98%93%E6%96%B9%E6%B3%95%E4%BB%A5%E5%8F%8A%E4%BA%A4%E6%98%93%E6%8A%80%E5%B7%A71.png)
 
-
-
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/52%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E4%B8%AD%E7%BA%BF%E4%BA%A4%E6%98%93%E6%96%B9%E6%B3%95%E4%BB%A5%E5%8F%8A%E4%BA%A4%E6%98%93%E6%8A%80%E5%B7%A72.png)
 
 ##### 53盛文兵：外汇黄金课堂之趋势线十年心得 判断头部底部实战精华
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/53%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%8D%81%E5%B9%B4%E5%BF%83%E5%BE%97%20%E5%88%A4%E6%96%AD%E5%A4%B4%E9%83%A8%E5%BA%95%E9%83%A8%E5%AE%9E%E6%88%98%E7%B2%BE%E5%8D%8E1.png)
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/53%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%8D%81%E5%B9%B4%E5%BF%83%E5%BE%97%20%E5%88%A4%E6%96%AD%E5%A4%B4%E9%83%A8%E5%BA%95%E9%83%A8%E5%AE%9E%E6%88%98%E7%B2%BE%E5%8D%8E2.png)
 
-
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/53%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%8D%81%E5%B9%B4%E5%BF%83%E5%BE%97%20%E5%88%A4%E6%96%AD%E5%A4%B4%E9%83%A8%E5%BA%95%E9%83%A8%E5%AE%9E%E6%88%98%E7%B2%BE%E5%8D%8E3.png)
 
 ##### 54盛文兵：外汇黄金课堂之趋势线拐点线
 
