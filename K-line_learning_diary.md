@@ -198,21 +198,17 @@
 
 ##### 42突破向下的方法
 
-
-
-
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/42%E7%AA%81%E7%A0%B4%E5%90%91%E4%B8%8B%E7%9A%84%E6%96%B9%E6%B3%95.png)
 
 ##### 43下跌内切阻力线
 
-
-
-
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/43%E4%B8%8B%E8%B7%8C%E5%86%85%E5%88%87%E9%98%BB%E5%8A%9B%E7%BA%BF.png)
 
 ##### 44下跌内切阻力线实战秘决
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/44%E4%B8%8B%E8%B7%8C%E5%86%85%E5%88%87%E9%98%BB%E5%8A%9B%E7%BA%BF%E5%AE%9E%E6%88%98%E7%A7%98%E5%86%B31.png)
 
-
-
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/44%E4%B8%8B%E8%B7%8C%E5%86%85%E5%88%87%E9%98%BB%E5%8A%9B%E7%BA%BF%E5%AE%9E%E6%88%98%E7%A7%98%E5%86%B32.png)
 
 ##### 45下跌旗形进场方法以及止损
 
@@ -229,6 +225,30 @@
 下降点一般是 红色线的长度。上边有多长，下边就有多长
 
 ![下跌旗形进场方法以及止损2](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/45%E4%B8%8B%E8%B7%8C%E6%97%97%E5%BD%A2%E8%BF%9B%E5%9C%BA%E6%96%B9%E6%B3%95%E4%BB%A5%E5%8F%8A%E6%AD%A2%E6%8D%9F2.png)
+
+##### 46下跌趋势线反弹与反弹把握方法
+
+
+
+
+
+##### 47下跌趋势线转换应用技巧
+
+
+
+
+
+##### 48下跌三角形进场点位以及目标侠
+
+
+
+
+
+##### 49下跌中断形态所有交易方法
+
+
+
+
 
 ##### 50.下跌阻力线与下跌趋势突破交易方法
 
