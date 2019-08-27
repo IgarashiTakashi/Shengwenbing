@@ -130,13 +130,29 @@
 
 前提，一，有一波很大幅度的下跌；二，趋势线有所突破；三，价格在回抽的时候多次不破新低，，，这将带来很多次的进场机会（这种机会一定要把握）
 
-
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/36%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E9%BB%84%E9%87%91%E5%A4%96%E6%B1%87%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E8%A7%92%E5%BA%A6%E7%BA%BF.png)
 
 
 
 ##### 37盛文兵：外汇黄金课堂之趋势线实战法则**（*必学技巧*）**
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/37%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%AE%9E%E6%88%98%E6%B3%95%E5%88%99%EF%BC%88%E5%BF%85%E5%AD%A6%E6%8A%80%E5%B7%A7%EF%BC%891.png)
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/37%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%AE%9E%E6%88%98%E6%B3%95%E5%88%99%EF%BC%88%E5%BF%85%E5%AD%A6%E6%8A%80%E5%B7%A7%EF%BC%892.png)
+
+
+
+##### 38盛文兵：外汇黄金课堂之趋势线的时间与空间
+
+
+
+
+
+##### 36盛文兵：黄金外汇课堂之趋势线角度线
+
+
+
+创新低必有反弹，创新高必有回调
 
 
 
