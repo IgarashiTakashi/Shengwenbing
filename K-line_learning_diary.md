@@ -144,13 +144,27 @@
 
 ##### 38盛文兵：外汇黄金课堂之趋势线的时间与空间
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/38%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E7%9A%84%E6%97%B6%E9%97%B4%E4%B8%8E%E7%A9%BA%E9%97%B41.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/38%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E7%9A%84%E6%97%B6%E9%97%B4%E4%B8%8E%E7%A9%BA%E9%97%B42.png)
 
 
 
+##### 39盛文兵：黄金外汇课堂之趋势线角度线
 
-##### 36盛文兵：黄金外汇课堂之趋势线角度线
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/39%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%BA%95%E9%83%A8%E9%A1%B6%E9%83%A8%E4%BA%A4%E6%98%93%E6%8A%80%E5%B7%A71.png)
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/39%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%BA%95%E9%83%A8%E9%A1%B6%E9%83%A8%E4%BA%A4%E6%98%93%E6%8A%80%E5%B7%A72.png)
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/39%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%BA%95%E9%83%A8%E9%A1%B6%E9%83%A8%E4%BA%A4%E6%98%93%E6%8A%80%E5%B7%A73.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/39%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%BA%95%E9%83%A8%E9%A1%B6%E9%83%A8%E4%BA%A4%E6%98%93%E6%8A%80%E5%B7%A74.png)
+
+**创新低必有反弹，创新高必有回调**
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/39%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%BA%95%E9%83%A8%E9%A1%B6%E9%83%A8%E4%BA%A4%E6%98%93%E6%8A%80%E5%B7%A75.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/39%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%BA%95%E9%83%A8%E9%A1%B6%E9%83%A8%E4%BA%A4%E6%98%93%E6%8A%80%E5%B7%A76.png)
 
 创新低必有反弹，创新高必有回调
 
