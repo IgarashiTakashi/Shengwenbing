@@ -166,7 +166,17 @@
 
 ![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/39%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%BA%95%E9%83%A8%E9%A1%B6%E9%83%A8%E4%BA%A4%E6%98%93%E6%8A%80%E5%B7%A76.png)
 
-创新低必有反弹，创新高必有回调
+
+
+##### 40盛文兵：外汇黄金课堂之趋势线开仓平仓判断反转综合应用
+
+
+
+
+
+##### 41头肩底
+
+
 
 
 
