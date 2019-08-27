@@ -228,27 +228,27 @@
 
 ##### 46下跌趋势线反弹与反弹把握方法
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/46%E4%B8%8B%E8%B7%8C%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%8F%8D%E5%BC%B9%E4%B8%8E%E5%8F%8D%E5%BC%B9%E6%8A%8A%E6%8F%A1%E6%96%B9%E6%B3%951.png)
 
-
-
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/46%E4%B8%8B%E8%B7%8C%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%8F%8D%E5%BC%B9%E4%B8%8E%E5%8F%8D%E5%BC%B9%E6%8A%8A%E6%8F%A1%E6%96%B9%E6%B3%952.png)
 
 ##### 47下跌趋势线转换应用技巧
 
-
-
-
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/47%E4%B8%8B%E8%B7%8C%E8%B6%8B%E5%8A%BF%E7%BA%BF%E8%BD%AC%E6%8D%A2%E5%BA%94%E7%94%A8%E6%8A%80%E5%B7%A7.png)
 
 ##### 48下跌三角形进场点位以及目标侠
 
-
-
-
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/48%E4%B8%8B%E8%B7%8C%E4%B8%89%E8%A7%92%E5%BD%A2%E8%BF%9B%E5%9C%BA%E7%82%B9%E4%BD%8D%E4%BB%A5%E5%8F%8A%E7%9B%AE%E6%A0%87%E4%BE%A0.png)
 
 ##### 49下跌中断形态所有交易方法
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/49%E4%B8%8B%E8%B7%8C%E4%B8%AD%E6%96%AD%E5%BD%A2%E6%80%81%E6%89%80%E6%9C%89%E4%BA%A4%E6%98%93%E6%96%B9%E6%B3%951.png)
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/49%E4%B8%8B%E8%B7%8C%E4%B8%AD%E6%96%AD%E5%BD%A2%E6%80%81%E6%89%80%E6%9C%89%E4%BA%A4%E6%98%93%E6%96%B9%E6%B3%952.png)
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/49%E4%B8%8B%E8%B7%8C%E4%B8%AD%E6%96%AD%E5%BD%A2%E6%80%81%E6%89%80%E6%9C%89%E4%BA%A4%E6%98%93%E6%96%B9%E6%B3%953.png)
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/49%E4%B8%8B%E8%B7%8C%E4%B8%AD%E6%96%AD%E5%BD%A2%E6%80%81%E6%89%80%E6%9C%89%E4%BA%A4%E6%98%93%E6%96%B9%E6%B3%954.png)
 
 ##### 50.下跌阻力线与下跌趋势突破交易方法
 
