@@ -280,14 +280,70 @@
 
 ##### 54盛文兵：外汇黄金课堂之趋势线拐点线
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/54%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E6%8B%90%E7%82%B9%E7%BA%BF1.png)
 
-
-
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/54%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E6%8B%90%E7%82%B9%E7%BA%BF2.png)
 
 ##### 55盛文兵：外汇黄金课堂之趋势线买卖点实战秘决 十年心得
 
-支撑平台未破
+趋势线突破但支撑平台未破
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/55%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E4%B9%B0%E5%8D%96%E7%82%B9%E5%AE%9E%E6%88%98%E7%A7%98%E5%86%B3%20%E5%8D%81%E5%B9%B4%E5%BF%83%E5%BE%971.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/55%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E4%B9%B0%E5%8D%96%E7%82%B9%E5%AE%9E%E6%88%98%E7%A7%98%E5%86%B3%20%E5%8D%81%E5%B9%B4%E5%BF%83%E5%BE%972.png)
+
+##### 56盛文兵：外汇黄金课堂之趋势线震荡行情交易方法
 
 
 
-​           
+
+
+##### 57盛文兵：外汇黄金课堂之趋势线正确画法02
+
+
+
+
+
+##### 58盛文兵：外汇黄金课堂之趋势线判断底部
+
+
+
+
+
+##### 59盛文兵：外汇黄金课堂之趋势线反转交易秘诀
+
+
+
+
+
+##### 60盛文兵：外汇黄金课堂之趋势线上升压力线于下跌阻力线实战
+
+
+
+
+
+##### 61盛文兵：外汇黄金课堂之趋势线交易精髓
+
+
+
+
+
+##### 62外汇黄金课堂之基本面分析法 石油的影响
+
+
+
+
+
+##### 63外汇黄金课堂之基本面分析法实战秘决
+
+
+
+
+
+##### 64外汇黄金课堂之基本面分析法实 重点
+
+
+
+
+
+##### 65上涨楔形与下跌楔形
