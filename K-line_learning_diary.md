@@ -356,8 +356,13 @@
 
 ##### 64外汇黄金课堂之基本面分析法实 重点
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/64%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E5%9F%BA%E6%9C%AC%E9%9D%A2%E5%88%86%E6%9E%90%E6%B3%95%E5%AE%9E%20%E9%87%8D%E7%82%B9.png)
 
-
-
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/64%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E5%9F%BA%E6%9C%AC%E9%9D%A2%E5%88%86%E6%9E%90%E6%B3%95%E5%AE%9E%20%E9%87%8D%E7%82%B92.png)
 
 ##### 65上涨楔形与下跌楔形
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/65%E4%B8%8A%E6%B6%A8%E6%A5%94%E5%BD%A2%E4%B8%8E%E4%B8%8B%E8%B7%8C%E6%A5%94%E5%BD%A21.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/65%E4%B8%8A%E6%B6%A8%E6%A5%94%E5%BD%A2%E4%B8%8E%E4%B8%8B%E8%B7%8C%E6%A5%94%E5%BD%A22.png)
+
