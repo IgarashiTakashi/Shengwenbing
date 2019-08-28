@@ -344,13 +344,15 @@
 
 供求；冻产；减产；战争；天气；加息
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/62%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E5%9F%BA%E6%9C%AC%E9%9D%A2%E5%88%86%E6%9E%90%E6%B3%95%20%E7%9F%B3%E6%B2%B9%E7%9A%84%E5%BD%B1%E5%93%8D1.png)
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/62%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E5%9F%BA%E6%9C%AC%E9%9D%A2%E5%88%86%E6%9E%90%E6%B3%95%20%E7%9F%B3%E6%B2%B9%E7%9A%84%E5%BD%B1%E5%93%8D2.png)
 
 ##### 63外汇黄金课堂之基本面分析法实战秘决
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/63%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E5%9F%BA%E6%9C%AC%E9%9D%A2%E5%88%86%E6%9E%90%E6%B3%95%E5%AE%9E%E6%88%98%E7%A7%98%E5%86%B31.png)
 
-
-
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/63%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E5%9F%BA%E6%9C%AC%E9%9D%A2%E5%88%86%E6%9E%90%E6%B3%95%E5%AE%9E%E6%88%98%E7%A7%98%E5%86%B32.png)
 
 ##### 64外汇黄金课堂之基本面分析法实 重点
 
