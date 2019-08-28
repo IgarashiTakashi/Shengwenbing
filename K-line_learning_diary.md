@@ -314,31 +314,35 @@
 
 ##### 58盛文兵：外汇黄金课堂之趋势线判断底部
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/58%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%88%A4%E6%96%AD%E5%BA%95%E9%83%A81.png)
 
-
-
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/58%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%88%A4%E6%96%AD%E5%BA%95%E9%83%A82.png)
 
 ##### 59盛文兵：外汇黄金课堂之趋势线反转交易秘诀
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/59%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%8F%8D%E8%BD%AC%E4%BA%A4%E6%98%93%E7%A7%98%E8%AF%801.png)
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/59%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%8F%8D%E8%BD%AC%E4%BA%A4%E6%98%93%E7%A7%98%E8%AF%802.png)
 
-
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/59%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%8F%8D%E8%BD%AC%E4%BA%A4%E6%98%93%E7%A7%98%E8%AF%803.png)
 
 ##### 60盛文兵：外汇黄金课堂之趋势线上升压力线于下跌阻力线实战
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/59%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%8F%8D%E8%BD%AC%E4%BA%A4%E6%98%93%E7%A7%98%E8%AF%801.png)
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/59%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%8F%8D%E8%BD%AC%E4%BA%A4%E6%98%93%E7%A7%98%E8%AF%802.png)
 
-
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/59%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E5%A4%96%E6%B1%87%E9%BB%84%E9%87%91%E8%AF%BE%E5%A0%82%E4%B9%8B%E8%B6%8B%E5%8A%BF%E7%BA%BF%E5%8F%8D%E8%BD%AC%E4%BA%A4%E6%98%93%E7%A7%98%E8%AF%803.png)
 
 ##### 61盛文兵：外汇黄金课堂之趋势线交易精髓
 
+对立：美元黄金，美元欧元，美元英镑
 
 
 
+##### 62外汇黄金课堂之基本面分析法 石油的影响 
 
-##### 62外汇黄金课堂之基本面分析法 石油的影响
-
-
+供求；冻产；减产；战争；天气；加息
 
 
 
