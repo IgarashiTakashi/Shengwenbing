@@ -386,9 +386,9 @@
 
 ##### 71趋势线稳定获利核心秘诀
 
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/71%E8%B6%8B%E5%8A%BF%E7%BA%BF%E7%A8%B3%E5%AE%9A%E8%8E%B7%E5%88%A9%E6%A0%B8%E5%BF%83%E7%A7%98%E8%AF%801.png)
 
-
-
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/71%E8%B6%8B%E5%8A%BF%E7%BA%BF%E7%A8%B3%E5%AE%9A%E8%8E%B7%E5%88%A9%E6%A0%B8%E5%BF%83%E7%A7%98%E8%AF%802.png)
 
 ##### 72稳定盈利的秘密
 
@@ -399,3 +399,32 @@
 2.极端点位：到点位直线上涨直线下跌
 
 主力建仓必须马上离开成本价，如果不离开反复震荡
+
+##### 74盛文兵：技术与基本面的关系
+
+
+
+##### 107三角形原理实战技巧
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/107%E4%B8%89%E8%A7%92%E5%BD%A2%E5%8E%9F%E7%90%86%E5%AE%9E%E6%88%98%E6%8A%80%E5%B7%A71.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/107%E4%B8%89%E8%A7%92%E5%BD%A2%E5%8E%9F%E7%90%86%E5%AE%9E%E6%88%98%E6%8A%80%E5%B7%A72.png)
+
+##### 109趋势线三角形能通道综合实战技巧
+
+##### 110-111通道实战视频
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/111%E9%80%9A%E9%81%93%E5%AE%9E%E6%88%98%E8%A7%86%E9%A2%911.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/111%E9%80%9A%E9%81%93%E5%AE%9E%E6%88%98%E8%A7%86%E9%A2%912.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/111%E9%80%9A%E9%81%93%E5%AE%9E%E6%88%98%E8%A7%86%E9%A2%913.png)
+
+##### 111_1波浪数浪的正确方法
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/111_1%E6%B3%A2%E6%B5%AA%E6%95%B0%E6%B5%AA%E7%9A%84%E6%AD%A3%E7%A1%AE%E6%96%B9%E6%B3%95.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/111_1%E6%B3%A2%E6%B5%AA%E6%95%B0%E6%B5%AA%E7%9A%84%E6%AD%A3%E7%A1%AE%E6%96%B9%E6%B3%952.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/111_1%E6%B3%A2%E6%B5%AA%E6%95%B0%E6%B5%AA%E7%9A%84%E6%AD%A3%E7%A1%AE%E6%96%B9%E6%B3%953.png)
+
