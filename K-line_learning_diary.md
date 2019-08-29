@@ -366,3 +366,36 @@
 
 ![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/65%E4%B8%8A%E6%B6%A8%E6%A5%94%E5%BD%A2%E4%B8%8E%E4%B8%8B%E8%B7%8C%E6%A5%94%E5%BD%A22.png)
 
+##### 69盛文兵：波浪理念二浪与四浪规则
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/69%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E6%B3%A2%E6%B5%AA%E7%90%86%E5%BF%B5%E4%BA%8C%E6%B5%AA%E4%B8%8E%E5%9B%9B%E6%B5%AA%E8%A7%84%E5%88%99.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/69%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E6%B3%A2%E6%B5%AA%E7%90%86%E5%BF%B5%E4%BA%8C%E6%B5%AA%E4%B8%8E%E5%9B%9B%E6%B5%AA%E8%A7%84%E5%88%992.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/69%E7%9B%9B%E6%96%87%E5%85%B5%EF%BC%9A%E6%B3%A2%E6%B5%AA%E7%90%86%E5%BF%B5%E4%BA%8C%E6%B5%AA%E4%B8%8E%E5%9B%9B%E6%B5%AA%E8%A7%84%E5%88%993.png)
+
+##### 70金融交易盈利核心法宝
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/70%E9%87%91%E8%9E%8D%E4%BA%A4%E6%98%93%E7%9B%88%E5%88%A9%E6%A0%B8%E5%BF%83%E6%B3%95%E5%AE%9D1.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/70%E9%87%91%E8%9E%8D%E4%BA%A4%E6%98%93%E7%9B%88%E5%88%A9%E6%A0%B8%E5%BF%83%E6%B3%95%E5%AE%9D2.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/70%E9%87%91%E8%9E%8D%E4%BA%A4%E6%98%93%E7%9B%88%E5%88%A9%E6%A0%B8%E5%BF%83%E6%B3%95%E5%AE%9D3.png)
+
+![](https://github.com/IgarashiTakashi/Shengwenbing/raw/master/ShengwenbingPic/70%E9%87%91%E8%9E%8D%E4%BA%A4%E6%98%93%E7%9B%88%E5%88%A9%E6%A0%B8%E5%BF%83%E6%B3%95%E5%AE%9D4.png)
+
+##### 71趋势线稳定获利核心秘诀
+
+
+
+
+
+##### 72稳定盈利的秘密
+
+##### 73盛文兵：外汇黄金课堂之趋势线主力建仓
+
+1.震荡：反复洗盘信心不坚定的洗出来
+
+2.极端点位：到点位直线上涨直线下跌
+
+主力建仓必须马上离开成本价，如果不离开反复震荡
